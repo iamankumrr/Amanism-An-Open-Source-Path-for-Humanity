@@ -32,11 +32,6 @@ Every person can seek a direct connection with Energy.
 
 There is no requirement for a:
 
-- Priest
-- Pandit
-- Maulvi
-- Pastor
-- Guru
 - Religious intermediary
 
 Teachers and knowledgeable people may share their understanding, but **no human being is required to stand between an individual and Energy.**
